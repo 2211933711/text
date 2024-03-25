@@ -44,35 +44,3 @@ $$
 $$
 
 $$
-
-$$
-weffwfw我问问ef
-$$
-$$
-额外热污染
-$$
-
-
-$$ jksdhf发发发shfs
-
-
-$$
-jdhks去去去fksj
-$$
-
-
-$$jksdh啦啦啦fshfs
-$$
-
-
-
-$$chakh你好$$
-
----
-
-
-
-
-$$
-jsldfls不好jfsljfks
-$$
