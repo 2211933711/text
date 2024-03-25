@@ -22,7 +22,6 @@ fs'fdks
 
 fslfhs
 
-$$
 
 # jflsdjf
 
